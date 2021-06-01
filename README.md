@@ -6,3 +6,6 @@ It turned out that my hair was cut quite deep,like քաչալ :)
 Besides that,I had flown into an empty pool the day before, and there were 4 stitches in the inner part of muzzle
 So, I went to my graduation ceremony with 4 stitches and with quite deep cut hair.
 I will show you my scar,when we meets together.
+
+
+I need to see that photo, you kept I am sure :) դեմք
